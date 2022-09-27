@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Olaayo007
+- 👀 I’m interested in Financial analysis using software programs
+- 🌱 I’m currently learning business intelligence and data analysis with Corporate Finance Institute
+- 💞️ I’m looking to collaborate on projects for SE novices
+- 📫 You can reach me via +2348099014623
